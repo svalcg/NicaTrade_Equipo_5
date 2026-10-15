@@ -1,0 +1,1 @@
+# NicaTrade_Equipo_5
